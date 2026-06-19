@@ -1,0 +1,1 @@
+# // oznachava che chisloto trqbva da e celochisleno
